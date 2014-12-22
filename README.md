@@ -37,42 +37,48 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The second part of conny-catching Contayning the discouery of certaine wondrous coosenages, either s
+THE SECOND PART of Connie-catching.
+1. TO ALL YOONG GENTLEMEN, marchants, citizens, apprentices, yeomen, and plaine countrey farmers, Health.
+
 #####Body#####
 
-1. The discouery of the Prigging Law or nature of horse stealing.
+1. THE SECOND PART of Conny-catching.
 
-1. A pleasant storie of a horse-stealer.
+    _ The discouery of the Prigging Law or nature of horse stealing.
 
-1. The Vincents law, with the discouery therof.
+    _ A pleasant storie of a horse-stealer.
 
-1. A Table of the Lawes contayned in this second part.
+    _ The Vincents law, with the discouery therof.
 
-1. The discouery of the wordes of Art vsed in these Lawes.
+    _ A Table of the Lawes contayned in this second part.
 
-1. A pleasant tale of the Connie-chatchers.
+    _ The discouery of the wordes of Art vsed in these Lawes.
 
-1. A pleasant Tale of a Horse, how at Vxbridge, hee coosened a Conny-catcher, and had like to brought him to his Neckuerse.
+1. THE SECOND PART of Conie-chatching.
 
-1. A discourse, or rather discouery of the Nip and the Foist, laying open the nature of the Cut-purse and Picke-pocket.
+    _ A pleasant tale of the Connie-chatchers.
 
-1. A merry tale how a Miller had his purse cut in New gate market.
+    _ A pleasant Tale of a Horse, how at Vxbridge, hee coosened a Conny-catcher, and had like to brought him to his Neckuerse.
 
-1. A kinde conceipt of a Foist performed in Paules.
+    _ A discourse, or rather discouery of the Nip and the Foist, laying open the nature of the Cut-purse and Picke-pocket.
 
-1. A quaint conceite of a Cutler & a cutpursse.
+    _ A merry tale how a Miller had his purse cut in New gate market.
 
-1. The discouery of the Lifting Law.
+    _ A kinde conceipt of a Foist performed in Paules.
 
-1. The discouery of the Courbing Law.
+    _ A quaint conceite of a Cutler & a cutpursse.
 
-1. Of a Courber, & how cūningly he was taken.
+    _ The discouery of the Lifting Law.
 
-1. Of the subtilty of a Curber in coosoning a Maide.
+    _ The discouery of the Courbing Law.
 
-1. The Discouerie of the Blacke Art.
+    _ Of a Courber, & how cūningly he was taken.
 
-1. A true and merry Tale of a Knight, and a Tinker that was a pick-locke.
+    _ Of the subtilty of a Curber in coosoning a Maide.
+
+    _ The Discouerie of the Blacke Art.
+
+    _ A true and merry Tale of a Knight, and a Tinker that was a pick-locke.
 
 **Types of content**
 
